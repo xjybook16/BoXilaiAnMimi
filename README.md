@@ -34,7 +34,7 @@
 
 习近平的密友，胡耀邦的儿子胡德华公开表示：对于薄熙来，中央长期知而不办。为什么有这么多人当初实名举报薄熙来，他还是能提拔到如此高位呢？究竟是谁提拔的？他们跟提拔的人有什么关系呢？胡德华认为薄案背后有「位高权重」 的人。薄熙来、王立军案中掩藏惊人内幕尽在本书一览无遗。
 
-<p><img src="https://cloud.githubusercontent.com/assets/19661274/16099611/82086396-339c-11e6-89e2-241320f5f270.png"></p>
+<p><img src="https://cloud.githubusercontent.com/assets/20497761/18823715/69f77696-838a-11e6-82f7-6c9694358fd1.png"></p>
 <p><b>购书请访问 <a id="008" href="https://d6rojcwfw6e31.cloudfront.net/cn/book/薄熙來王立軍案被掩藏內幕-84382038?m=https://d6rojcwfw6e31.cloudfront.net&u=1003wechat"> 新纪元商城</a></b>
 <p><a id="008" href="https://d6rojcwfw6e31.cloudfront.net/cn/shop-QA?m=https://d6rojcwfw6e31.cloudfront.net&u=1003wechat"><b>购物问答</b></a>
 <p>實體書：台湾：诚品、金石堂、博客来网络书店、机场等各大书店发售 | 香港/澳门书店及旺角、尖沙咀、铜锣湾、澳门书报摊发售</p>
